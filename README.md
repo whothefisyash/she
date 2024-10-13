@@ -1,2 +1,2 @@
 # she
-click moon 🌙
+click [moon] (https://whothefisyash.github.io/she/)  🌙
